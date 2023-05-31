@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a large projects.
 - 💞️ I’m looking for a new job opportunity.
 - 📫 How to reach me :
--   1- alshami19102020@gmail.com
+-   1- faisal19102020@gmail.com
 -   2- alshami192020@hotmail.com
 -   3- WhatsApp : +967-774764160
 -   4- LinkedIn :https://www.linkedin.com/in/faisal-hameed-202063a5/
